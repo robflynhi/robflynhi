@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @robflynhi
+- 👀 I’m interested in video games and anime
+- 🌱 I’m currently learning business administration
+- 💞️ I’m looking to collaborate on anything really
+- 📫 How to reach me best is my email robertnakatani27@gmail.com
